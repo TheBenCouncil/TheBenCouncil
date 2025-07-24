@@ -1,4 +1,4 @@
-" The moral police are out to cleanse, cleanse, cleanse . "
+𓂃       " The moral police are out to cleanse, cleanse, cleanse . "       𓂃
 ![image alt](https://github.com/Kadarnis/kadarnis/blob/main/Untitled32_20250724163529.png?raw=true)
 <!--
 **Kadarnis/kadarnis** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
