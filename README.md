@@ -7,4 +7,6 @@ Mainly into Remake Life Series or FNAF !
 
 C+H for green names is always okay ! Even if I don't say much, i appreciate you all
 
+Friend Covering is okay ! Inspo is also okay
+
 𓂃       " So they'll grab another law, which they can bend . "       𓂃
