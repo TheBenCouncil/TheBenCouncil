@@ -1,5 +1,5 @@
 𓂃       " The moral police are out to cleanse, cleanse, cleanse . "       𓂃
-![image alt](https://github.com/Kadarnis/kadarnis/blob/main/Untitled32_20250724163529.png?raw=true)
+![image alt](https://github.com/Kadarnis/kadarnis/blob/main/Untitled34_20250724200428.png?raw=true)
 
 Hi ! I go by Kadar or whatever skin i'm in ! Non fem pronouns
 
