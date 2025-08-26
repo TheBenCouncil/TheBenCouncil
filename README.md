@@ -1,12 +1,11 @@
-𓂃       " You almost killed us . "       𓂃
+₊˚ ✧ ━━━━⊱𝄞⊰━━━━ ✧ ₊˚
+
+" You almost killed us . "
 ![image alt](https://github.com/BENDlCION/BENDlCION/blob/main/Untitled48_20250825200753.png)
 
-Hi ! I go by Kadar or whatever skin i'm in ! Non fem pronouns
+Kadar / Vari ☆ 4TEEN 11/19 { Matching w/ thatmanyplanes }
 
-Mainly into Remake Life Series !
+#1 Bendicion fan !! ☆ Any  Non  Fem
 
-C+H for green names is always okay ! Even if I don't say much, i appreciate you all
+. ˚₊ C+H Fandom ☆ Inspo Okay
 
-Friend Covering is okay ! Inspo is also okay
-
-𓂃       " I'll write a symphony for the departed . "       𓂃
