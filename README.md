@@ -1,7 +1,7 @@
 ₊˚ ✧ ━━━━⊱𝄞⊰━━━━ ✧ ₊˚
 
 " You almost killed us . "
-![image alt](https://github.com/BENDlCION/BENDlCION/blob/main/Untitled48_20250825200753.png)
+![image alt](https://github.com/TheBenCouncil/TheBenCouncil/blob/main/image_2025-09-14_131341206.png?raw=true)
 
 Kadar / Vari ☆ 4TEEN 11/19 { Matching w/ thatmanyplanes }
 
